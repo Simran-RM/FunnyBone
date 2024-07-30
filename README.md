@@ -1,1 +1,1 @@
-Have a little laugh here : https://stackdevpro.github.io/FunnyBone/
+Have a little laugh here : https://simran-rm.github.io/FunnyBone/
